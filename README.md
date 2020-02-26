@@ -11,7 +11,5 @@ A) Download Project Proposal Form (1. PROJECT PROPOSAL FORM.doc)
    - Get it signed by the supervisor and concerned person.
    
 B) Fill Online Form at the following Link 
-   - Complete the presentation.
-   - Generate a printout of the presentation and get it signed by the supervisor.
-   - Bring atleast 3 printed copies of the presentation on the day of synopsis.
-
+   - https://tinyurl.com/csfypgform
+   
