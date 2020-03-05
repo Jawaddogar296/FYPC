@@ -13,3 +13,5 @@ A) Download Project Proposal Form (1. PROJECT PROPOSAL FORM.doc)
 B) Fill Online Form at the following Link 
    - https://tinyurl.com/csfypgform
    
+C) Make your project presentation 
+   - Bring it during the project defense
